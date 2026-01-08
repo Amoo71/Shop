@@ -1,6 +1,0 @@
-
-
-
-
-Aufzählung der Produkte:
-
